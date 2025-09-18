@@ -1,1 +1,0 @@
-Place artist photos here.
